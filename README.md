@@ -1,4 +1,4 @@
-![alt text](https://cdn.discordapp.com/attachments/1322914488705355879/1355518395734298846/kaveh_graphic_-Photoroom.png?ex=67e93861&is=67e7e6e1&hm=6a2fcbb061c903464dbf960ba35501fa347fa3ed37fa6b808eecd26738a6a608&)
+![alt text](https://cdn.discordapp.com/attachments/1322914488705355879/1355788406847963206/download__3_-removebg-preview.png?ex=67ea33d9&is=67e8e259&hm=c68b8ac577fdd0ea91384d031d131321b797750b3b1527d07a5ed9d5ca70c9a0&)
 
 **🌻 ,, Here is my stem and here are my leaves. When the sun comes up, I turn my head. When the sun goes down I go to bed~**
 
