@@ -3,3 +3,6 @@
 **🌻 ,, Here is my stem and here are my leaves. When the sun comes up, I turn my head. When the sun goes down I go to bed~**
 
  "" @ Light of Kshahrewar   ﹒    ᓚᘏᗢ   ﹒   she / her prns.   sys  （☀ did traumagenic）femme : bisexual  
+
+ im an c + h person in ponytown so dont hesitate in cuddling or hiding behind me :3!! , basic dni applies w me if you will do those kinda stuff at me I will just block u :>  ,,
+__dnc__ my skins please, but feel free to take sum inspo just whisper me or dm me in my discord account :3! 
