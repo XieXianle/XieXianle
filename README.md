@@ -1,4 +1,5 @@
 ![alt text](https://cdn.discordapp.com/attachments/1322914488705355879/1357620002408108147/download_3-Photoroom.png?ex=67f0dda7&is=67ef8c27&hm=e201d9bdbba68a716abdacdcb87542d9774723be52d5e05780ebdaaa9677586d&)
+
 **🌻 ,, Every reunion is also a new encounter. Hello, I am "Sunday," a humble passenger.**
 
  "" @ finding solace in the cosmos   ﹒    ᓚᘏᗢ   ﹒   she / her prns.   sys  （☀ did traumagenic）femme : bisexual  
